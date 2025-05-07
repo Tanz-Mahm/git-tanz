@@ -1,0 +1,1 @@
+This is a text file, file is oaky[D[D[D text is ok
